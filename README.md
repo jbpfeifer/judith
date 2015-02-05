@@ -1,2 +1,0 @@
-# judith
-judiths homepage
